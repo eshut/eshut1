@@ -1,4 +1,5 @@
 ![Alt Text](https://thumbs.gfycat.com/DefenselessKlutzyFlyingfox-size_restricted.gif)
+<img src="https://thumbs.gfycat.com/DefenselessKlutzyFlyingfox-size_restricted.gif" width="100%">
 <!--
 **JekaShut/JekaShut** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
